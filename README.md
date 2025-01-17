@@ -1,1 +1,1 @@
-creditxinagasiaOKapi.gasiagdinxilenna.icu$$
+creditxinagasiaOK$$
